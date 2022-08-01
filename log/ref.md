@@ -2,7 +2,7 @@ https://heodolf.tistory.com/6?category=897877
 
 https://heodolf.tistory.com/18
 
-https://kibua20.tistory.com/228 - 셀레니우움 버전 4 변경점
+https://kibua20.tistory.com/228 - 셀레니움 버전 4 변경점
 
 https://pythonblog.co.kr/coding/7/
 
